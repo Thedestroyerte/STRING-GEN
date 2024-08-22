@@ -5,7 +5,7 @@
 </h2>
 
 <p align="center">
-  <img src="https://te.legra.ph/file/07e5b7d11e3a834ad3826.jpg">
+  <img src="https://telegra.ph/file/692ef82e387adafa0aa3a.jpg">
 </p>
 
 _**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [sᴛʀɪɴɢ ғᴀᴛʜᴇʀ](https://t.me/StringFatherBot)**_
