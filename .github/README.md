@@ -22,7 +22,7 @@ _**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [sᴛʀɪɴɢ ғᴀ�
 ━━━━━━━━━━━━━━━━━━━━
 
 <p align="center">
-  <img src="https://te.legra.ph/file/7871ceddf5ab4a6787182.jpg">
+  <img src="https://telegra.ph/file/7871ceddf5ab4a6787182.jpg">
 </p>
 
 <p align="center">
